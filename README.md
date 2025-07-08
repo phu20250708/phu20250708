@@ -10,4 +10,4 @@
 
 本站每日更新高质量人妻类精品视频，涵盖日韩、福利、剧情等丰富内容。全站播放流畅不卡顿，支持手机与电脑端无广告访问，致力于为您打造舒适纯净的观影环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phu20250708/phu20250708 ）</span>
